@@ -2,7 +2,9 @@
 
 ## CHAPTER 1
 
-The monsoon arrived not with rain, but with feathers. They drifted down through the smog-choked afternoon, a silent, ticklish snow of pigeon-gray and sparrow-brown, catching in the awnings of noodle stalls and the tangled cables overhead. Linh watched one settle on the lip of her mortar, a delicate, barbed thing quivering in the steam of the pestle. She flicked it away. It was the third sign this week, and the only one she could not grind into powder.
+Kuala Lumpur’s new towers grew from the old ones, concrete tendrils piercing their ancestors’ ribs. Grandfather’s ghost watered the rubber trees with a rusted tin, his shadow stretching across five decades to cool my neck. The future, they promised, would be a clean graft. But the scar tissue was already singing.
+
+
 
 Her stall, *Hương Cố Hồn*—Scent of Old Souls—was a patchwork of rust and resin wedged between a betel nut vendor and a shop selling plastic Buddhas. Here, she sold memories by the gram. Not the cheap, synthetic nostalgia pumped into the government-sanctioned Dream Parlours, but the real grit: powdered grief for sleepless nights, distilled euphoria from wedding days long dissolved, the faint, peppery ash of a childhood home lost to fire or flood or forgetting. Her customers came with vials and hollow eyes, and left with a temporary, specific peace. Linh dealt in the archaeology of feeling. Today, the air tasted of zinc and overripe jackfruit, and the feathers were a wrong note.
 
