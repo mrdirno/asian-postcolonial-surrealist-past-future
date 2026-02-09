@@ -1,3 +1,5 @@
+# Chapter 1
+
 ## CHAPTER 1
 
 The monsoon arrived not with rain, but with feathers. They drifted down through the smog-choked afternoon, a silent, ticklish snow of pigeon-gray and sparrow-brown, catching in the awnings of noodle stalls and the tangled cables overhead. Linh watched one settle on the lip of her mortar, a delicate, barbed thing quivering in the steam of the pestle. She flicked it away. It was the third sign this week, and the only one she could not grind into powder.
@@ -87,6 +89,8 @@ Linh wrapped the watch in the batik cloth, then sealed it inside a canister of b
 She slipped out the back, into the alley that smelled of urine and frying garlic. The monsoon feathers still drifted, catching in the perpetual twilight. As she walked, she felt the watch in her bag, a second heartbeat. And she heard, or imagined she heard, a faint, rhythmic sound emanating from it, not a tick, but a soft, wet *pulse*, like the opening of a petal, or the closing of a gill.
 
 The herons were flying backwards. Time was bleeding. And she, the archaeologist of feeling, was now knee-deep in a river that flowed in all the wrong directions.
+
+# Chapter 2
 
 ## CHAPTER 2
 
@@ -191,6 +195,8 @@ And she understood, as the cold water numbed her bones and the pipe narrowed, th
 The watch’s pulse quickened, matching her own frantic heart. It was leading her. Deeper into the Glitch. Deeper into the fracture.
 
 Into the place where the herons flew backwards, and the future was a forgotten, petal-soft thing struggling to be born.
+
+# Chapter 3
 
 ## CHAPTER 3
 
